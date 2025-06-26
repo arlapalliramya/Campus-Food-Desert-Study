@@ -1,2 +1,2 @@
 # Campus-Food-Desert-Study
- qualitative research proposal exploring food insecurity among college students at SUNY Albany.
+ How do students manage their eating habits on a campus often considered a food desert?
